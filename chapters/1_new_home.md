@@ -9,6 +9,25 @@
 - Einsamkeit
 
 
-# Kapitel 1 - new home
+# Kapitel 1 - new home / Zuhause
+*Wuumps* - knallte es laut. Sachen müssen wohl wieder geflogen sein.
 
+Ich drehte die Musik lauter, doch es half nicht. Jedes Wort dringte durch die Wände hindurch und ich verstand jedes Wort.
 
+"Ich will die Scheidung!"
+
+"Ach, dann mach doch was du willst!", hallte es durch den Flur, gefolgt von einem Türknallen. "Blöder Arsch.", hörte ich meine Mutter vor sich hinfluchen. 
+
+Es war immer, das selbe mit den beiden. In paar Tagen tun sie so als wäre nichts passiert.
+
+Ich schließte meine Augen um der Musik zu lauschen. Als ich sie auf machte, befand ich mich im freien Fall. Ohne Fallschirm, ohne Ausrüstung. Ich bemerkte eine nasse Sensation an meiner Backe. Ich schaute nach oben um nachzuschauen, ob es regnete, doch der Himmel war klar. Kurz bevor ich auf den Boden aufkäme, schreckte ich auf. 
+
+Vor mir war was haariges, aber ich konnte es in meinen Schlummer-Zustand nicht zuordnen.
+
+Ich schaute mich um, doch es war alles schwarz. Dunkel. Es brauchte eine kleine Zeit bis sich meine müden Augen etwas an die Dunkelheit gewöhnt hatten. 
+
+Langsam wieder in der Realität angekommen, bemerkte ich Samy. Sie muss wohl mein Unbehagen gespürt habe, welcher durch den Traum verursacht wurde. Ich lasse mich wieder auf mein Kissen fallen und hauchte in Richtung Decke: "Was ein Fiebertraum".
+
+Währenddessen folgte Samy mir und schmuste sich mit ihren kleinen weichen Kopf in die Spalte zwischen meinem Kinn und Hals. Sie lagerte ihren Körper auf meine Brust. 
+
+Während ich nach rechts schaute, um auf die digitale Uhr auf dem Nachttisch zu schauen, gab ich Samy noch paar Streicheleinheiten auf den Kopf bis ich langsam wieder in einen traumlosen Schlaf verfiehl.
