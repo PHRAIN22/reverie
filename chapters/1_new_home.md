@@ -30,4 +30,12 @@ Langsam wieder in der Realität angekommen, bemerkte ich Samy. Sie muss wohl mei
 
 Währenddessen folgte Samy mir und schmuste sich mit ihren kleinen weichen Kopf in die Spalte zwischen meinem Kinn und Hals. Sie lagerte ihren Körper auf meine Brust. 
 
-Während ich nach rechts schaute, um auf die digitale Uhr auf dem Nachttisch zu schauen, gab ich Samy noch paar Streicheleinheiten auf den Kopf bis ich langsam wieder in einen traumlosen Schlaf verfiehl.
+Während ich nach rechts schaute, um auf die digitale Uhr auf dem Nachttisch zu schauen - 5 Uhr morgens. Ich gab ich Samy noch einen Kuss auf ihre Stirn - denn wie konnte ich diesem süßen Geschöpf keins geben. Ich streichelte sie bis selbst langsam wieder in einen traumlosen Schlaf verfiehl.
+
+
+Sonnenstrahlen erfassten, durch die Gardinen mein Gesicht. Als ich zum Bettende runter schaute, sah ich ein kleines Fellknäuel. Samy muss wohl als ich wieder eingeschlafen bin wieder auf ihre Lieblingsstelle des Beds zurückpositioniert haben. 
+
+Ein Hund ist Menschen besten Freund. In meine Fall eher Hündin. Samy ist ein Segen. Es ist nun drei Monate her, seitdem ich ausgezogen bin. In ein neues Zuhause. Meinem eigenen Safe Space.
+
+Haustiere sind ein Segen. Besonders Hunde. Ihre unconditional love bereichern Leben.
+
