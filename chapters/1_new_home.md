@@ -35,7 +35,4 @@ Während ich nach rechts schaute, um auf die digitale Uhr auf dem Nachttisch zu 
 
 Sonnenstrahlen erfassten, durch die Gardinen mein Gesicht. Als ich zum Bettende runter schaute, sah ich ein kleines Fellknäuel. Samy muss wohl als ich wieder eingeschlafen bin wieder auf ihre Lieblingsstelle des Beds zurückpositioniert haben. 
 
-Ein Hund ist Menschen besten Freund. In meine Fall eher Hündin. Samy ist ein Segen. Es ist nun drei Monate her, seitdem ich ausgezogen bin. In ein neues Zuhause. Meinem eigenen Safe Space.
-
-Haustiere sind ein Segen. Besonders Hunde. Ihre unconditional love bereichern Leben.
-
+Ein Hund ist Menschen besten Freund. In meine Fall eher Hündin. Samy ist ein Segen. Es ist nun drei Monate her, seitdem ich ausgezogen bin. In ein neues Zuhause. Meinem eigenen Safe Space. Ich genieße die Freiheit, aber es wurde auch recht einsam. 
